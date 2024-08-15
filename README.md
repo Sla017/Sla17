@@ -1,8 +1,7 @@
 -  ## Oiiiiii 🫦🫦
-  ![](https://tenor.com/pt-BR/view/welcome-gif-18135425)
+  ![](https://media.tenor.com/enYv1_O0jDkAAAAM/welcome.gif)
 -  Meu nome é ✨Isadora✨
 -  I’m currently studying: 🍃 Alura 🍃
 -  How to reach me:→ 00001132813888sp@al.educacao.sp.gov.br ←
 -  Pronouns: 💞 Ela/Dela 💞
-   
-![](https://tenor.com/pt-BR/view/skeleton-meme-ryder-dance-gif-21810902)
+   ![](https://media.tenor.com/8LBHwzkdFwQAAAAM/monsters-and-memories-skeleton.gif)
