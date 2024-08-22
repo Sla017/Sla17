@@ -1,4 +1,4 @@
--  ## Oiiiiii 🫦🫦
+  ## Oiiiiii 🫦🫦
   ![](https://media.tenor.com/jMJ25jIgOPgAAAAM/shaq-shimmy.gif)
 -  Meu nome é ✨Isadora✨
 -  I’m currently studying: 🍃 Alura 🍃
